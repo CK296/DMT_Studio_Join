@@ -10,7 +10,7 @@
 
 平时的爱好有**绘画**、**创作**以及**游戏**；在游戏方面我格外着迷于游戏的美术设计、叙事与作者想表达的内容、以及游戏的《 机 制 》（《 特 性 》）（（ B U G 𓆣 ））  
 
-![bug](https://pic.pngsucai.com/00/51/82/43b2ab2aff015d6f.webp "它真可爱")  
+![bug](https://pic.pngsucai.com/00/51/82/43b2ab2aff015d6f.webp )  
 
 ...(＠v＠;) 扯远了  
 
@@ -62,7 +62,7 @@
 
 群内昵称为<u>小孩儿</u> ，电话：U2FsdGVkX18ibeHWZAWuNytKQWH2Q46C+cTZ7+Up7fE=  
 
-!['code:dream'](https://img.redocn.com/sheji/20230927/hongseqiqiuchatu_13114831.jpg "它")
+![它](https://img.redocn.com/sheji/20230927/hongseqiqiuchatu_13114831.jpg )
 
 ***
 
