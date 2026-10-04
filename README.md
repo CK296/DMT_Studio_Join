@@ -6,7 +6,7 @@
  
 # 👾基本介绍＆兴趣方向  
 
-### 你好，我是 <u>小孩儿</u> / <u>CK</u> ，数字媒体技术学生  
+### 你好，我是 <u> 小孩儿 </u> / <u> CK </u> ，数字媒体技术学生  
 
 平时的爱好有**绘画**、**创作**以及**游戏**；在游戏方面我格外着迷于游戏的美术设计、叙事与作者想表达的内容、以及游戏的《 机 制 》（《 特 性 》）（（ B U G 𓆣 ））  
 
@@ -60,7 +60,7 @@
 
 # 📞联系方式  
 
-群内昵称为 <u>小孩儿</u>  ，电话：U2FsdGVkX18ibeHWZAWuNytKQWH2Q46C+cTZ7+Up7fE=  
+群内昵称为 <u> 小孩儿 </u>  ，电话：U2FsdGVkX18ibeHWZAWuNytKQWH2Q46C+cTZ7+Up7fE=  
 
 ![它]([https://img.redocn.com/sheji/20230927/hongseqiqiuchatu_13114831.jpg] "code:dream")
 
